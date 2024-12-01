@@ -19,5 +19,5 @@ TRANSLATED
 
 # THIS HAPPENS BECAUSE RIO BLOCKED HIM.
 
-Rio DM'd Bengio's Gun was bad when murilo was making it but NOW after kicking murilo from the team he says Bengio's Pak is "Just Fine"?
+Rio DM'd Bengio, Bengio's Gun was bad when murilo was making it but NOW after kicking murilo from the team he says Bengio's Pak is "Just Fine"?
 ![image](https://github.com/user-attachments/assets/33b5946a-b243-443a-b4e5-52e66d4721a2)
