@@ -11,5 +11,9 @@ Rio Banned & Blocked Murilo (Dev) from his server for "NOT FIXING" and "IGNORING
 (No Image for this one, this just happened.)
 
 Blocked Murilo (Dev) For Exactly No Reason At All.
-![image](https://github.com/user-attachments/assets/aaf12eb8-2587-45bb-a8d2-04c4639d07b5)
+![image](https://github.com/user-attachments/assets/aaf12eb8-2587-45bb-a8d2-04c4639d07b5) 
+
+TRANSLATED
+![image](https://github.com/user-attachments/assets/de0743e8-4b04-4d8a-a96b-92af03645adb)
+
 
