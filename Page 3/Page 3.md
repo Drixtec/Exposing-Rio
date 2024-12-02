@@ -6,7 +6,8 @@
 
 ## By Cem's Word, Which i OBVIOUSLY BELIEVE, and its very believable, ByZN Called him "Paki" in VC. Which is an Very Racist Slur in French.
 
-![image](https://github.com/user-attachments/assets/2be08bb0-b7ca-492c-b497-eacd4419649c)
+![image](https://github.com/user-attachments/assets/4ea79d67-fe33-4a6f-a4c7-dced8a9e9fa8)
+
 
 ## He Also Said "ByZN Say that word whenever he wants". I Believe in this because ByZN actually harrased me before aswell.
 
