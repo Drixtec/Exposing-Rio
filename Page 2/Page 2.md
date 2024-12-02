@@ -14,6 +14,10 @@
 
 ![image](https://github.com/user-attachments/assets/dcbf6aa2-37ad-4b0f-acdc-ec3038035973)
 
+# Rio Saying That Bengio is "Breaking" and "Changing ID's" in the eon paks even tho he didn't break anything at all.
+![image](https://github.com/user-attachments/assets/10ec47f4-2722-462f-ad62-e5c23374654f)
+
+
 # OLDER THINGS:
 (FROM: https://github.com/vexxwyd/Eon-Document-2/issues)
 ## Rio and his Friend looking at [Blank Grabber](https://github.com/Blank-c/Blank-Grabber) (Steals Tokens, Cookies and etc.. from games browsers, discord..) Back when it was called Project Exit.
