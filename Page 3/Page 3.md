@@ -4,4 +4,7 @@
 # ByZN Thinking he's "The King" over Cem.
 ![image](https://github.com/user-attachments/assets/eabd6c30-7ea1-4842-8b90-dd899f15b2a7)
 
+# By Cem's Word, Which i OBVIOUSLY BELIEVE, and its very believable, ByZN Called him "Paki" in VC. Which is an Very Racist Slur in French.
+![image](https://github.com/user-attachments/assets/2be08bb0-b7ca-492c-b497-eacd4419649c)
+
 (Kinda Embarrassing For Eon!)
