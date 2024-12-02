@@ -29,6 +29,6 @@
 ## Rio Wasting 1,064$ in Nitro from an Logged Account.
 https://github.com/user-attachments/assets/eb50351b-8065-4ad4-b610-b1c4af594a8c
 
-## Rio Doxxing his Old Partner (Antonio) in Announcements.
+## Rio doxxed this random guy that antonio (Rio's Old Partner) sent to Rio in his DM's.
 ![image](https://github.com/user-attachments/assets/c820afdf-7dfc-4d4a-a5cb-bdf4acc57fd9)
 
