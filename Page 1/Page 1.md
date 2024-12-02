@@ -1,24 +1,22 @@
-# EXPOSING RIO AND PROJECT EON FOR BEING TOXIC TO ITS DEVS AND PUSHING THEM TO THE LIMITS.
-note: rio is a pos
+EXPOSING RIO AND PROJECT EON FOR TOXIC BEHAVIOR TOWARDS DEVELOPERS AND PUSHING THEM TO THEIR LIMITS.
+(Note: Rio is a POS.)
 
-Rio Pushing His Dev During Thanksgiving when he knows he's busy.
+Rio Pressuring His Developer on Thanksgiving, Despite Knowing How Busy He Was.
 ![image](https://github.com/user-attachments/assets/4421ffb3-7db4-4dbe-a663-6150bf6ecd24)
 
-Pushing Devs to the Maximum, He thinks EON SHould be their one and only priority all the time.
+Pushing Devs to the Brink: Rio Believes EON Should Always Be Their #1 Priority, No Matter What.
 ![image](https://github.com/user-attachments/assets/485f3324-29a3-4bb4-9bfe-817509638074)
 
-Rio Banned & Blocked Murilo (Dev) from his server for "NOT FIXING" and "IGNORING" the person that was helping him fix the Custom Gun in the paks.
-(No Image for this one, this just happened.)
+Rio Banned and Blocked Murilo (Dev) from His Server for "NOT FIXING" and "IGNORING" the Person Helping Him with Custom Guns in the Paks.
+(No Image for this, but it just happened.)
 
-Blocked Murilo (Dev) For Exactly No Reason At All.
+Blocked Murilo (Dev) for Absolutely No Reason Whatsoever.
 ![image](https://github.com/user-attachments/assets/aaf12eb8-2587-45bb-a8d2-04c4639d07b5) 
 
-TRANSLATED
-
+# TRANSLATED
 ![image](https://github.com/user-attachments/assets/de0743e8-4b04-4d8a-a96b-92af03645adb)
 
-# THIS HAPPENS BECAUSE RIO BLOCKED HIM.
+# THIS ALL HAPPENED BECAUSE RIO BLOCKED HIM.
 
-# Rio DM'd Bengio, Bengio's Gun was bad when murilo was making it but NOW after kicking murilo from the team he says Bengio's Pak is "Just Fine"?
-
+# Rio DM'd Bengio, Criticizing Bengio's Gun When Murilo Was Making It. But Now, After Kicking Murilo from the Team, He Claims Bengio's Pak is "Just Fine."
 ![image](https://github.com/user-attachments/assets/33b5946a-b243-443a-b4e5-52e66d4721a2)
