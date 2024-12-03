@@ -1,5 +1,5 @@
 # Exposing-Rio
-Rio.Dev Exposed.
+Document Exposing Multiple People Related to Project Eon, Mainly Rio/Plague. They're The Same Person and Have ALWAYS Been.
 
 ![POSRIO](https://github.com/user-attachments/assets/eef8f160-3984-49ff-8e1d-f6f1fbd3f8b7)
 
